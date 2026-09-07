@@ -1,1 +1,1 @@
-Personal academic webpage. Last updated in  June 2026.
+Personal academic webpage. Last updated in September 2026.
